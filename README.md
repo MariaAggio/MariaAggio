@@ -1,0 +1,4 @@
+- ✨ Prazer @MariaAggio
+- 🌕 Sou interessada em música,livros
+- 🦋 Atualmente estou aprende informática básica 
+- 🤍 Procuro colaborar com jogos
